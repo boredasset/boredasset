@@ -6,17 +6,17 @@
 <details>
   <summary> Fav games </summary>  
 	
-  -Apex Legends  <br />
+  Apex Legends  <br />
 	
-  -Dota 2 <br />
+  Dota 2 <br />
 	
-  -Albion Online <br />  
+  Albion Online <br />  
 	
-  -TES 5  <br />
+  TES 5  <br />
 	
-  -Kenshi <br />
+  Kenshi <br />
 	
-  -In Celebration of Violence <br /> 
+  In Celebration of Violence <br /> 
   ... and etc ... <br /> 
 </details>  
 Socials:
