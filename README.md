@@ -24,7 +24,9 @@
 ## Socials:
 >[VK](https://vk.com/dagger__01hex)
 > 
->[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)  
+>[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)
+>
+>[Twitch](https://www.twitch.tv/boredpep)
 --------
 
 what the f is thall  
