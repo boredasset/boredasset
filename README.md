@@ -19,10 +19,13 @@
   In Celebration of Violence <br /> 
   ... and etc ... <br /> 
 </details>  
-Socials:
 
->[VK](https://vk.com/dagger__01hex)  
+--------  
+Socials:
+>[VK](https://vk.com/dagger__01hex)
+> 
 >[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)  
+--------
 
 what the f is thall  
 who knows  
