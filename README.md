@@ -21,7 +21,7 @@
 </details>  
 
 --------  
-Socials:
+## Socials:
 >[VK](https://vk.com/dagger__01hex)
 > 
 >[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)  
@@ -30,7 +30,7 @@ Socials:
 what the f is thall  
 who knows  
 thall  
-
+------  
 ![jesus-balling](https://github.com/user-attachments/assets/86a3a264-6af4-4f38-b1ff-770980b4247d)  
 
 ![clover](https://github.com/user-attachments/assets/0192fb8e-b966-498c-b962-014594f57eb2)  
