@@ -1,4 +1,4 @@
-### Rus // Eng // Sve 
+## Rus // Eng // Sve 
 -----------------
 >baleful 2d pixel games player with metal on accompaniment, solo music producer, artist, jun game developer and python learner 
 >
@@ -27,7 +27,7 @@
 </details>  
 
 --------  
-## Socials:
+## Socials  
 >[VK](https://vk.com/dagger__01hex)
 > 
 >[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)
