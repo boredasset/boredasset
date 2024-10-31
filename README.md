@@ -21,6 +21,8 @@
   Dark and Darker <br />
 	
   Kenshi <br />
+
+  Duolingo (not /j anymore) <br />
 	
   In Celebration of Violence <br /> 
   ... and etc ... <br /> 
