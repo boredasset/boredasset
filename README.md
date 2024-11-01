@@ -10,8 +10,14 @@
 	
   Dota 2 <br />
 	
-  Albion Online <br />  
-	
+  Albion Online <br /> 
+
+  Dying Light <br />
+
+  Dead Island <br />
+
+  PvZ <br/>
+  
   TES 5  <br />
 
   Doom <br />
