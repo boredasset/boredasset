@@ -69,9 +69,7 @@
 >
 >[Twitch](https://www.twitch.tv/boredpep)
 
-⠀⠀⠀⠀
---------
-⠀⠀⠀⠀⠀⠀⠀⠀
+
 what the f is thall  
 who knows  
 thall  
