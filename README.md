@@ -50,16 +50,26 @@
   In Celebration of Violence <br /> 
   ... and etc ... <br /> 
 </details>  
+⠀⠀⠀⠀⠀⠀⢀⡤⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⡀⠀⠀⠀⠀⠀⠀<br />
+⠀⠀⠀⠀⠀⢀⡏⠀⠀⠈⠳⣄⠀⠀⠀⠀⠀⣀⠴⠋⠉⠉⡆⠀⠀⠀⠀⠀<br />
+⠀⠀⠀⠀⠀⢸⠀⠀⠀⠀⠀⠈⠉⠉⠙⠓⠚⠁⠀⠀⠀⠀⣿⠀⠀⠀⠀⠀<br />
+⠀⠀⠀⠀⢀⠞⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠹⣄⠀⠀⠀⠀<br />
+⠀⠀⠀⠀⡞⠀⠀⠀⠀⠀⠶⠀⠀⠀⠀⠀⠦⠀⠀⠀⠀⠀⠸⡆⠀⠀⠀<br />
+⢠⣤⣶⣾⣧⣤⣤⣀⡀ ⠀⠀⠀⠈⠀⠀⠀⢀⡤⠴⠶⠤⢤⡀⣧⣀⣀⠀<br />
+⠻⠶⣾⠁⠀⠀⠀⠀⠙⣆⠀⠀⠀⠀⠀⠀⣰⠋⠀⠀⠀⠀⠀⢹⣿⣭⣽⠇<br />
+⠀⠀⠙⠤⠴⢤⡤⠤⠤⠋⠉⠉⠉⠉⠉⠉⠉⠳⠖⠦⠤⠶⠦⠞⠁⠀
+<br />
 
---------  
 ## Socials  
 >[VK](https://vk.com/dagger__01hex)
 > 
 >[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)
 >
 >[Twitch](https://www.twitch.tv/boredpep)
---------
 
+⠀⠀⠀⠀
+--------
+⠀⠀⠀⠀⠀⠀⠀⠀
 what the f is thall  
 who knows  
 thall  
