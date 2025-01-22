@@ -71,7 +71,7 @@
 >
 >[Twitch](https://www.twitch.tv/boredpep)
 
-no stats
+no stats <br /> 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Bored-Asset-01)](https://github.com/anuraghazra/github-readme-stats)
 
 what the f is thall  
