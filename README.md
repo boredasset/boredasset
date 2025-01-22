@@ -26,6 +26,8 @@
   Apex Legends  <br />
 	
   Dota 2 <br />
+
+  Visual Studio (best game ever made by humanity)<br />
 	
   Albion Online <br /> 
 
