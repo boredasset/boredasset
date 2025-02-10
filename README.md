@@ -34,6 +34,20 @@
   Duolingo (not /j anymore) <br />
 	
   In Celebration of Violence <br /> 
+
+  Celeste <br /> 
+
+  IWBTG & IWBTB <br /> 
+
+  MGRR:V <br /> 
+
+  Sulfur <br /> 
+
+  Death Stranding <br /> 
+
+  HL <br /> 
+
+  x64 dbg :) <br /> 
   ... and etc ... <br /> 
 <br />
 <br />
