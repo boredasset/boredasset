@@ -8,6 +8,8 @@
   <summary> Fav games ( I actually hate half o`them) </summary>  
 	
   Apex Legends  <br />
+
+  Elden Ring (im bad at ds 3 )<br />
 	
   Dota 2 <br />
 
