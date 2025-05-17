@@ -1,7 +1,7 @@
 ## Rus // Eng // Sve 
 -----------------
 
->baleful 2d pixel games player with metal on accompaniment, solo music producer, artist, jun game developer and python learner 
+>baleful ■ ■ ■ ■ ■ ■ ■ games player with metal on accompaniment, solo music producer, ■ ■ ■ ■ ■ , jun ■ ■ ■ ■ developer and ■ ■ ■ ■ ■ ■  learner 
 >
 >bored asset aka dagger__01hex
 <details>
@@ -13,7 +13,7 @@
 	
   Dota 2 <br />
 
-  Visual Studio (best game ever made by humanity)<br />
+  Visual Studio (■ ■ ■ ■  ■ ■ ■)<br />
 	
   Albion Online <br /> 
 
@@ -45,12 +45,11 @@
 
   Sulfur <br /> 
 
-
   Death Stranding <br /> 
 
   HL <br /> 
 
-  x64 dbg :) <br /> 
+  x64 dbg 😭 <br /> 
   ... and etc ... <br /> 
 <br />
 <br />
