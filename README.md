@@ -65,7 +65,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ games player with ■ ■ ■ ■ ■  on ac
 <br />
 
 ## Socials  
->[VK](https://vk.com/dagger__01hex)
+>[VK](https://vk.com/boredasset)
 > 
 >[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)
 >
