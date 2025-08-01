@@ -1,7 +1,8 @@
 ## Rus // Eng // Sve 
 -----------------
 
-baleful ■ ■ ■ ■ ■ ■ ■ games player with ■ ■ ■ ■ ■  on accompaniment, solo music producer, ■ ■ ■ ■ ■ , jun ■ ■ ■ ■ developer and ■ ■ ■ ■ ■ ■  learner 
+baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
+
 >
 >bored asset aka dagger__01hex
 <details>
