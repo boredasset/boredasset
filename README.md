@@ -3,8 +3,6 @@
 
 baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 
->
->bored asset aka dagger__01hex
 <details>
   <summary> Fav games ( I actually hate half o`them) </summary>  
 	
