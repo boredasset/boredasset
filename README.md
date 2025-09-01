@@ -7,7 +7,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 	
   Apex Legends  <br />
 
-  Elden Ring (im bad at ds 3 )<br />
+  Elden Ring <br />
 	
   Dota 2 <br />
 
