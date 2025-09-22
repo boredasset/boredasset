@@ -8,7 +8,9 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
   Apex Legends  <br />
 
   Elden Ring <br />
-	
+
+  Dark Souls I - III ( fuck blighttown ) <br />
+  
   Dota 2 <br />
 
   Visual Studio (■ ■ ■ ■  ■ ■ ■)<br />
