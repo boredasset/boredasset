@@ -9,7 +9,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 
   Elden Ring <br />
 
-  Dark Souls I - III ( fuck blighttown ) <br />
+  Dark Souls I , III ( tomb of giants and lost izalith is so ass damn blighttown compared to this is a fever dream ) <br />
   
   Dota 2 <br />
 
