@@ -138,7 +138,7 @@ This has begun<br /> ⠀⠀⠀
 We are a trained culture to look for the end<br /> ⠀⠀⠀
 The book speaks the words<br /> ⠀⠀⠀
 And this is the end that we intend<br /> ⠀⠀⠀
-[The Tony Danza Tapdance Extravaganza - Hidden Track (12-21-12).mp3](https://github.com/user-attachments/files/23189292/The.Tony.Danza.Tapdance.Extravaganza.-.Hidden.Track.12-21-12.mp3)<br /> ⠀⠀⠀
+
 <!---
 bored-asset/bored-asset is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
