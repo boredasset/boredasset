@@ -82,13 +82,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 ![изображение_2024-07-09_222215379 (1)](https://github.com/user-attachments/assets/4211f5fa-e438-42f0-ae7e-6c5fc04b17b4) 
 <br /> ⠀⠀⠀
 
-So she fell into a trance<br /> ⠀⠀⠀
-And the cities burned at only her first glance<br /> ⠀⠀⠀
-And then she said<br /> ⠀⠀⠀
-"You will see the beast roar<br /> ⠀⠀⠀
-And when the time runs to the end<br /> ⠀⠀⠀
-You will hear the winds of war<br /> ⠀⠀⠀
-You will hear the winds of war"<br />
+
 
 ⣿⣿⣿⣿⠟⠛⠿⠿⠛⠛⠻⠛⢻⠿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
 ⣿⡿⠿⢿⣧⡀⠀⠀⠀⠀⠀⠀⠀⠈⠈⠹⢿⣿⣿⠿⢿⣿⣿⠿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
@@ -123,21 +117,7 @@ You will hear the winds of war"<br />
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢗⠃⣩⡽⠃⠈⢘⣻⣛⠃⠀⠈⣾⣿⣿⣿⣦⡈⢀⣨⣾⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣟⠏⣂⣀⣀⣀⢉⡀⢀⠈⠉⠉⡀⡄⠈⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣷⣦⣴⣶⣶⣤⣴⣶⣀⣉⣉⣉⣉⣀⣾⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
-<br /> ⠀⠀⠀
-The ancient calendar<br /> ⠀⠀⠀
-I-net software and the I-ching oracle<br /> ⠀⠀⠀
-Speak of the end of this day<br /> ⠀⠀⠀
-And our history shows<br /> ⠀⠀⠀
-The track record of the prophecy<br /> ⠀⠀⠀
-Here now are all of the signs so say it that way<br /> ⠀⠀⠀
-<br /> ⠀⠀⠀
-With war, corruption, H1N1 this has already begun<br /> ⠀⠀⠀
-With war, corruption, H1N1 this has already begun<br /> ⠀⠀⠀
-This has begun<br /> ⠀⠀⠀
-<br /> ⠀⠀⠀
-We are a trained culture to look for the end<br /> ⠀⠀⠀
-The book speaks the words<br /> ⠀⠀⠀
-And this is the end that we intend<br /> ⠀⠀⠀
+
 
 <!---
 bored-asset/bored-asset is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
