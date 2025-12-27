@@ -26,7 +26,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
   
   TES 5  <br />
 
-  Doom <br />
+  Doom series<br />
 
   Minceraft lol <br />
 
