@@ -4,7 +4,7 @@
 baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 
 <details>
-  <summary> Fav games ( I actually hate half o`them) </summary>  
+  <summary> Fav games ( extandable ) </summary>  
 	
   Apex Legends  <br />
 
