@@ -69,7 +69,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 ## Socials  
 >[VK](https://vk.com/boredasset)
 > 
->[Steam](https://steamcommunity.com/id/IFuckingHateYou__00/)
+>[Steam](https://steamcommunity.com/id/boredasset)
 >
 >[Twitch](https://www.twitch.tv/boredpep)
 >
