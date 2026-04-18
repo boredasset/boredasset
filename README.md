@@ -74,6 +74,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 >[Twitch](https://www.twitch.tv/boredpep)
 >
 
+<img width="196" height="25" alt="clovers 77777" src="https://github.com/user-attachments/assets/8b437c07-a0b0-4f7d-be11-e4b3b99f9238" /><br /> ⠀⠀
 
 ![изображение_2025-05-09_205633187 (1)](https://github.com/user-attachments/assets/9d5f87ef-b50d-4e75-8b32-118c636c0057)⠀⠀ <br /> ⠀⠀⠀⠀
 
