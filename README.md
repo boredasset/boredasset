@@ -25,6 +25,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
   PvZ <br/>
   
   TES 5  <br />
+<img width="227" height="200" alt="100000 cloves" src="https://github.com/user-attachments/assets/bebc2b58-cfc2-4452-853a-e9c22c80c14f" />
 
   Doom series<br />
 
@@ -73,7 +74,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 >
 >[Twitch](https://www.twitch.tv/boredpep)
 >
-
+<img width="210" height="27" alt="100k cut" src="https://github.com/user-attachments/assets/0faf9dda-9e53-45a0-a26e-a70855018ce3" /><br /> ⠀⠀
 <img width="196" height="25" alt="clovers 77777" src="https://github.com/user-attachments/assets/8b437c07-a0b0-4f7d-be11-e4b3b99f9238" /><br /> ⠀⠀
 
 ![изображение_2025-05-09_205633187 (1)](https://github.com/user-attachments/assets/9d5f87ef-b50d-4e75-8b32-118c636c0057)⠀⠀ <br /> ⠀⠀⠀⠀
