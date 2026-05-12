@@ -74,14 +74,15 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 >
 >[Twitch](https://www.twitch.tv/boredpep)
 >
-<img width="210" height="27" alt="100k cut" src="https://github.com/user-attachments/assets/0faf9dda-9e53-45a0-a26e-a70855018ce3" /><br /> ⠀⠀
-<img width="196" height="25" alt="clovers 77777" src="https://github.com/user-attachments/assets/8b437c07-a0b0-4f7d-be11-e4b3b99f9238" /><br /> ⠀⠀
+<img width="210" height="27" alt="100k cut" src="https://github.com/user-attachments/assets/0faf9dda-9e53-45a0-a26e-a70855018ce3" /><br /> 
 
-![изображение_2025-05-09_205633187 (1)](https://github.com/user-attachments/assets/9d5f87ef-b50d-4e75-8b32-118c636c0057)⠀⠀ <br /> ⠀⠀⠀⠀
+<img width="196" height="25" alt="clovers 77777" src="https://github.com/user-attachments/assets/8b437c07-a0b0-4f7d-be11-e4b3b99f9238" /><br />
 
-![изображение_2025-03-26_185447240 (1)](https://github.com/user-attachments/assets/4ca4305c-6db8-4c79-8682-d1a4267bdde2) <br /> ⠀⠀⠀
+![изображение_2025-05-09_205633187 (1)](https://github.com/user-attachments/assets/9d5f87ef-b50d-4e75-8b32-118c636c0057)⠀⠀ <br />
 
-![изображение_2024-07-09_222215379 (1)](https://github.com/user-attachments/assets/4211f5fa-e438-42f0-ae7e-6c5fc04b17b4) 
+![изображение_2025-03-26_185447240 (1)](https://github.com/user-attachments/assets/4ca4305c-6db8-4c79-8682-d1a4267bdde2) <br />
+
+![изображение_2024-07-09_222215379 (1)](https://github.com/user-attachments/assets/4211f5fa-e438-42f0-ae7e-6c5fc04b17b4)
 <br /> ⠀⠀⠀
 
 
