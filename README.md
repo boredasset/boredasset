@@ -10,9 +10,9 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 
   Elden Ring <br />
 
-  Dark Souls I , III ( tomb of giants and lost izalith is so ass damn blighttown compared to this is a fever dream ) <br />
+  Dark Souls I , III<br />
   
-  Dota 2 <br />
+  Dota 2<br />
 
   Visual Studio (■ ■ ■ ■  ■ ■ ■)<br />
 	
