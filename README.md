@@ -50,8 +50,6 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
   Death Stranding <br /> 
 
   HL <br /> 
-
-  x64 dbg 😭 <br /> 
   ... and etc ... <br /> 
 <br />
 <br />
