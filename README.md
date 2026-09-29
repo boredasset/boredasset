@@ -62,6 +62,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 		&emsp;Gifts: 700.000<br /> 
 		&emsp;Candies: 550.000 +<br /> 
 		&emsp;Eggs: ~330.000<br /> 
+		&emsp;Pearls: 6.600+<br /> 
 }<br /> 
 </details>
 
