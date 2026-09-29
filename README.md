@@ -56,11 +56,13 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 </details>  
 <details>
   <summary>Est.Collectibles counts ( pony town ) </summary> 
-	Current status: restricted use 
-	Clovers: 108.000 +
-	Gifts: 700.000
-	Candies: 550.000 +
-	Eggs: ~330.000
+{<br /> 
+		&emsp;Current status: Restricted_Use <br /> 
+		&emsp;Clovers: 108.000 +<br /> 
+		&emsp;Gifts: 700.000<br /> 
+		&emsp;Candies: 550.000 +<br /> 
+		&emsp;Eggs: ~330.000<br /> 
+}<br /> 
 </details>
 
 ⠀⠀⠀⠀⠀⠀⢀⡤⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⡀⠀⠀⠀⠀⠀⠀<br />
