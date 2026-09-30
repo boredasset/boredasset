@@ -55,6 +55,100 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 <br />
 </details>  
 <details>
+  <summary> Fav music bands </summary> 
+	&emsp;List consists metal bands primarily but I tolerate every genre except some deep underground sht and pop music<br />
+	&emsp;Meshuggah<br /> 
+	&emsp;early Dance Gavin Dance<br /> 
+	&emsp;Frontierer<br /> 
+	&emsp;Vildhjarta<br /> 
+	&emsp;Humanity`s Last Breath<br /> 
+	&emsp;Seven<br /> 
+	&emsp;Nemertines<br /> 
+	&emsp;Sun Guts<br /> 
+	&emsp;Car Bomb<br /> 
+	&emsp;Haken<br />
+	&emsp;Northlane<br /> 
+	&emsp;early Converge<br /> 
+	&emsp;Kaonashi<br /> 
+	&emsp;Tony Danza Tapdance Extravaganza<br /> 
+	&emsp;Tigran Hamasyan<br /> 
+	&emsp;T.R.A.M.<br /> 
+	&emsp;Fear Factory<br /> 
+	&emsp;Once Human<br /> 
+	&emsp;Psyopus<br /> 
+	&emsp;Ion Dissonance<br /> 
+	&emsp;Suicide Silence<br /> 
+	&emsp;The Dillinger Escape Plan<br /> 
+	&emsp;Mouthbreather<br /> 
+	&emsp;Korn<br />
+	&emsp;Ulcerate<br />
+	&emsp;Spiritbox<br />
+	&emsp;War From a Harlots Mouth<br />
+	&emsp;Freak Kitchen<br />
+	&emsp;God Complex<br />
+	&emsp;INSVRGENCE<br />
+	&emsp;The Goddamn Rodeo<br />
+	&emsp;A Dark Orbit<br />
+	&emsp;Daughters<br />
+	&emsp;Street Sects<br />
+	&emsp;The Acacia Strain<br />
+	&emsp;Black Tongue<br />
+	&emsp;ERRA<br />
+	&emsp;Pretty Mouth<br />
+	&emsp;Mastodon<br />
+	&emsp;TesseracT<br />
+	&emsp;Infant Annihilator<br />
+	&emsp;UNIKNEIM<br />
+	&emsp;Inside the Beehive<br />
+	&emsp;Noise Trail Immersion<br />
+	&emsp;Fractalize<br />
+	&emsp;Look What I Did<br />
+	&emsp;Planning For Burial<br />
+	&emsp;The Red Chord<br />
+	&emsp;Sewerslvt<br />
+	&emsp;After the Burial<br />
+	&emsp;Misery Signals<br />
+	&emsp;Breakdown of Sanity<br />
+	&emsp;Marta Prell<br />
+	&emsp;Rolo Tomassi<br />
+	&emsp;Exotic Animal Petting Zoo<br />
+	&emsp;Sianvar<br />
+	&emsp;Circa Survive<br />
+	&emsp;Oktober Skyline<br />
+	&emsp;See_You_Space_Cowboy<br />
+	&emsp;Botch<br />
+	&emsp;Body Prison<br />
+	&emsp;Currents<br />
+	&emsp;Bermuda<br />
+	&emsp;The Chariot<br />
+	&emsp;When Knives Go Skyward<br />
+	&emsp;Iamerror<br />
+	&emsp;I wrestled a bear once<br />
+	&emsp;Emmure<br />
+	&emsp;Glass Cloud<br />
+	&emsp;Molotov Solution<br />
+	&emsp;Silver Knife<br />
+	&emsp;Uneven Structure<br />
+	&emsp;Gaza<br />
+	&emsp;Architects<br />
+	&emsp;Brutal Truth<br />
+	&emsp;Chamber<br />
+	&emsp;Traitors<br />
+	&emsp;Invent, Animate<br />
+	&emsp;Kava Hu<br />
+	&emsp;In the Midst of Lions<br />
+	&emsp;See you next tuesday<br />
+	&emsp;Norma Jean<br />
+	&emsp;Boundaries<br />
+	&emsp;Despised Icon<br />
+	&emsp;Mirar<br />
+	&emsp;Between the Buried and Me<br />
+	&emsp;Black Tongue<br />
+	&emsp;Thy Art is Murder<br />
+	
+	
+</details>
+<details>
   <summary>Est.Collectibles counts ( pony town ) </summary> 
 {<br /> 
 		&emsp;Current status: Restricted_Use <br /> 
@@ -64,6 +158,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 		&emsp;Eggs: ~330.000<br /> 
 		&emsp;Pearls: 6.600+<br /> 
 }<br /> 
+
 </details>
 
 ⠀⠀⠀⠀⠀⠀⢀⡤⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⡀⠀⠀⠀⠀⠀⠀<br />
