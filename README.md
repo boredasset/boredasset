@@ -25,7 +25,6 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
   PvZ <br/>
   
   TES 5  <br />
-<img width="227" height="200" alt="100000 cloves" src="https://github.com/user-attachments/assets/bebc2b58-cfc2-4452-853a-e9c22c80c14f" />
 
   Doom series<br />
 
@@ -157,6 +156,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 		&emsp;Candies: 550.000 +<br /> 
 		&emsp;Eggs: ~330.000<br /> 
 		&emsp;Pearls: 6.600+<br /> 
+	&emsp;<img width="227" height="200" alt="100000 cloves" src="https://github.com/user-attachments/assets/bebc2b58-cfc2-4452-853a-e9c22c80c14f" />
 }<br /> 
 
 </details>
