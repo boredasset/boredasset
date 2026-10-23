@@ -153,10 +153,12 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 		&emsp;Current status: Restricted_Use <br /> 
 		&emsp;Clovers: 108.000 +<br /> 
 		&emsp;Gifts: 700.000<br /> 
-		&emsp;Candies: 550.000 +<br /> 
+		&emsp;Candies: 550.000 + +<br /> 
 		&emsp;Eggs: ~330.000<br /> 
 		&emsp;Pearls: 6.600+<br /> 
 	&emsp;<img width="227" height="200" alt="100000 cloves" src="https://github.com/user-attachments/assets/bebc2b58-cfc2-4452-853a-e9c22c80c14f" /><br /> 
+	<img width="489" height="252" alt="alla2_" src="https://github.com/user-attachments/assets/44fe39b6-e5c5-498e-8ce1-2a29ea93cc8f" /><br /> 
+
 }<br /> 
 
 </details>
