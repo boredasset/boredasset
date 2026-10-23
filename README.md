@@ -54,7 +54,7 @@ baleful ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■
 <br />
 </details>  
 <details>
-  <summary> Fav music bands </summary> 
+  <summary> Fav music bands (at least Im familliar w most of them)</summary> 
 	&emsp;List consists metal bands primarily but I tolerate every genre except some deep underground sht and pop music<br />
 	&emsp;Meshuggah<br /> 
 	&emsp;early Dance Gavin Dance<br /> 
